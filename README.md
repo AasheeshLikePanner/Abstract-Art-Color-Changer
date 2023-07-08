@@ -23,10 +23,8 @@ I am so, Happy seeing this app working and changing it's color. It was hard for 
 
                                           HERE IS THE VIDEO OF ME USING MY APP 😎
 
-https://github.com/AasheeshLikePanner/Abstract-Art-Color-Changer/assets/126905285/7cc17a73-d41a-40fa-9183-348798491e0f
+https://github.com/AasheeshLikePanner/Abstract-Art-Color-Changer/assets/126905285/a233eca6-3cb9-4f13-bc25-73045417cefb
 
-
-  
 
 
 
