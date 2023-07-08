@@ -18,7 +18,7 @@ I am so, Happy seeing this app working and changing it's color. It was hard for 
 
                                           HERE IS THE SCREENSHOT OF MY APP
 
-![WhatsApp Image 2023-07-08 at 6 01 36 PM](https://github.com/AasheeshLikePanner/Abstract-Art-Color-Changer/assets/126905285/8d0064d4-ed0c-45ef-907a-1a86c89a1b89)
+![MERE PASS POCO KA PHONE HAI 😤💪](https://github.com/AasheeshLikePanner/Abstract-Art-Color-Changer/assets/126905285/8d0064d4-ed0c-45ef-907a-1a86c89a1b89)
 
 
                                           HERE IS THE VIDEO OF ME USING MY APP 😎
